@@ -1,2 +1,2 @@
-# Suja-s-creations.gitub.io
+# terracota jewellery creations.gitub.io
 terracota jewellery
